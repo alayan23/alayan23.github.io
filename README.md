@@ -1,2 +1,2 @@
 # alayan23.github.io
-la nueva p&aacute:gina en internet
+la nueva página en Internet
